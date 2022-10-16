@@ -1,6 +1,6 @@
 # SGN Graphics Pack
-<p align="center"><SGN has designed multiple sets of graphics to help spruce up your social media. Download these and use them to support us! Editable links can be modified using canva.com. Simply click on the link, log in, then update any spot that says "Username" with your details!
-></p>
+SGN has designed multiple sets of graphics to help spruce up your social media. Download these and use them to support us! Editable links can be modified using canva.com. Simply click on the link, log in, then update any spot that says "Username" with your details!
+
 
 ## Canva Links For Edits
 
